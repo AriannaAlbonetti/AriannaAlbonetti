@@ -1,1 +1,1 @@
-( ༎ຶ⌑༎ຶ ) sto morendo wtf
+( ༎ຶ⌑༎ຶ )
